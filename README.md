@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Antique
+- 👀 I’m interested in Technology
+- 🌱 I am currently studying for a bachelor's degree in informatics engineering.
+- ⚡ Fun fact: I Love You
